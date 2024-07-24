@@ -1,8 +1,10 @@
 decided to stop coding and focus on life so im selling my rust cheat source and everything that i got.
-selling rust external (auto updates)
-selling fortnite external (auto updates)
-selling secure loader (loaded with top tire protection)
-selling spoofer (intel amd)
-selling menu & loader
-selling my custom auth system (very secure)
+custom auth - $150 for more details dm me for it
+custom loader - $50 dm me
+custom menu  - $50 dm me
+custom protection - $75 dm me
+pre-made auth - $100 for more details dm me for it
+pre-made loader - $30 dm me
+pre-made menu   - $30 dm me
+custom protection - $50 dm me
 discord -> the0x9
